@@ -1,1 +1,0 @@
-# Technology_and_Data_Management_Case_Study
